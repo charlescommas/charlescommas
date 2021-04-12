@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CharlesCommas
-- 👀 I’m interested in random stuff at random time
+- 👀 I’m interested in random things at random time
 - 🌱 I’m currently learning, especially about life
 - 💞️ I’m looking to collaborate on others' lives as well
 - 📫 How to reach me ...
